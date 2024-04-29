@@ -405,9 +405,9 @@ __________________****______________________
 
   
   
-  Author       :  Zaryab Onfirē <3
+  Author     :  Zaryab Onfirē <3
        
-           |8 Blindēr - Rullex - Kingx <3 |8
+  |8 Blindēr - Rullex - Kingx <3 |8
              
   { Hassan - Albert - Shawn - Hadi - Ashik }
 	
